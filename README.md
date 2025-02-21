@@ -1,0 +1,1 @@
+# trik-mahjong-wins
